@@ -1,2 +1,0 @@
-# ramandeepsingh.github.io
-portfolio
